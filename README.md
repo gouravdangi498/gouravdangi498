@@ -1,4 +1,4 @@
-### <div align="center">Hi <img src="https://c.tenor.com/Wx9IEmZZXSoAAAAi/hi.gif" width=20>, I'm Kapil Rai
+### <div align="center">Hi <img src="https://c.tenor.com/Wx9IEmZZXSoAAAAi/hi.gif" width=20>, I'm Gourav Rai
 <h1 align="center">I'm interested in Studying<img src="https://c.tenor.com/jdSvLgTHCQkAAAAi/tkthao219-bubududu.gif" width=30>, Implementing <img src="https://c.tenor.com/whgQwNlVvNkAAAAi/xero-code.gif" width=30>, Exploring <img src="https://c.tenor.com/bgfU3WsoVMwAAAAi/wander-explore-experience-explore.gif" width=30> etc.</h1></div>  
 
 # 💫 About Me:
